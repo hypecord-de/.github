@@ -14,6 +14,6 @@ Folge einfach diesem Link, um unserer Community beizutreten: [https://hypecord.e
 
 ## Kontakt
 
-Wenn du Fragen hast oder weitere Informationen benötigst, kannst du uns per Dirket-Nachricht via Discord kontaktieren: [discord://-/users/927148345263271937] / [discord://-/users/661543259906244610] / [discord://-/users/743070657406959697]
+Wenn du Fragen hast oder weitere Informationen benötigst, kannst du uns per Dirket-Nachricht via Discord kontaktieren: (Lndr)[discord://-/users/927148345263271937] / (Luis)[discord://-/users/661543259906244610] / (Snasy)[discord://-/users/743070657406959697]
 
 Wir freuen uns darauf, dich auf hypecord begrüßen zu dürfen!

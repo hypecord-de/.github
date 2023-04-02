@@ -10,7 +10,7 @@ hypecord ist eine Community, die sich auf das gemeinsame Wachstum und die Schaff
 
 ## Wie kann ich beitreten?
 
-Folge einfach [diesem Link](https://hypecord.eu/discord), um unserer Community beizutreten. 
+Folge einfach [diesem Link](https://hypecord.de/discord), um unserer Community beizutreten. 
 
 ## Kontakt
 

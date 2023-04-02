@@ -10,10 +10,10 @@ hypecord ist eine Community, die sich auf das gemeinsame Wachstum und die Schaff
 
 ## Wie kann ich beitreten?
 
-Folge einfach diesem Link, um unserer Community beizutreten: [https://hypecord.eu/discord]
+Folge einfach [diesem Link](https://hypecord.eu/discord), um unserer Community beizutreten. 
 
 ## Kontakt
 
-Wenn du Fragen hast oder weitere Informationen benötigst, kannst du uns per Dirket-Nachricht via Discord kontaktieren: (Lndr)[discord://-/users/927148345263271937] / (Luis)[discord://-/users/661543259906244610] / (Snasy)[discord://-/users/743070657406959697]
+Wenn du Fragen hast oder weitere Informationen benötigst, kannst du uns per Dirket-Nachricht via Discord kontaktieren: Lndr#2501 / Luis#7654 / Snasy#1753
 
 Wir freuen uns darauf, dich auf hypecord begrüßen zu dürfen!

@@ -1,3 +1,5 @@
+# Aktuell in Wartung. Veröffentlichungsdatum nicht bekannt 
+
 # Herzlich willkommen auf hypecord!
 
 hypecord ist eine Community, die sich auf das gemeinsame Wachstum und die Schaffung einer sicheren Umgebung für ihre Mitglieder konzentriert. Hier findest du Gleichgesinnte und kannst dich über deine Interessen austauschen.
